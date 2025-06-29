@@ -197,8 +197,6 @@ GitHub: https://github.com/LVazyibes
 
 ![2](https://github.com/user-attachments/assets/0a1cb9db-ad72-4e8d-8718-1014db93bef4)
 
-![3](https://github.com/user-attachments/assets/42f1547b-df78-4910-ac1e-e2da3e34625c)
-
 ![4](https://github.com/user-attachments/assets/f8ca7b74-1ab3-4daa-b622-28eb642f592d)
 
 
